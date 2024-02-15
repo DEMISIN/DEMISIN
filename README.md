@@ -10,11 +10,11 @@ he/him & 18 yro
 
 found on 18+ @ the stump underneath the minecart
 
-i only play ponytown for my bf and my friends!!!
+usually sitting with my boyfriend or friend(s); w2i.
 
-if you have any issues with me it's likely onesided :3
+if you have any issues with me: it's likely onesided ...
 
-read my informational links
+read my informational links :3
 
 <hr>
 
