@@ -2,21 +2,26 @@
 
 
   
-# <div align="center"> **THE AIN GUY** </span></div>
+# <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **THE AIN GUY**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
 
-cainy or atem
-he/him & 18
-not keen on c+h but you can sit next to me (?)
+$${\color{red}ain \space/\space atem \space/\space cain}$$
 
-i rarely play pt anymore but you will usually find me sitting on the stump underneath mines in 18+ with my boyfriend. if we sit too close to you or near you; we're probably trying to sit close to our stump.
+he/him & 18 yro
 
-league of legends, projectmoon, genshin impact, yugioh & other stuff; i don't condone the actions of the parent companies behind those media
+found on 18+ @ the stump underneath the minecart
 
-no pt boundaries just don't colorpick me & my boyfriend's ponies & don't be a weirdo
+i only play ponytown for my bf and my friends!!!
+
+if you have any issues with me it's likely onesided :3
+
+read my informational links
 
 <hr>
 
-#### hiiiii ok that's all idk
+### **things i like**
+projectmoon, yugioh, genshin, league of legends, etc.
+
+$${\color{yellow}i \space do \space not \space condone \space the \space actions \space of \space the \space parent \space companies \space behind \space those \space medias.}$$
 
 <!--
 **DEMISIN/DEMISIN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
