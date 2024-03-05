@@ -8,7 +8,7 @@ $${\color{red}ain \space/\space atem \space/\space cain}$$
 
 he/him & 18 yro
 
-found on 18+ @ the stump underneath the minecart
+found on 18+ @ [the stump underneath the minecart](https://cdn.discordapp.com/attachments/515237661271654400/1108940191583973476/gayyaoicirlce.png?ex=65f3ae88&is=65e13988&hm=4f779b28a460459647cc176d696b3ba822474e8b263a0de72a8db05abf379e49&)
 
 usually sitting with my boyfriend or friend(s); w2i.
 
