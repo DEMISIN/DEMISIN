@@ -2,15 +2,13 @@
 
 
   
-# <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **THE AIN GUY**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
+# <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **THE CAIN GUY**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
 
 $${\color{red}ain \space/\space atem \space/\space cain}$$
 
 he/him & 18 yro
 
-found on 18+ @ [the stump underneath the minecart](https://cdn.discordapp.com/attachments/515237661271654400/1108940191583973476/gayyaoicirlce.png?ex=65f3ae88&is=65e13988&hm=4f779b28a460459647cc176d696b3ba822474e8b263a0de72a8db05abf379e49&)
-
-usually sitting with my boyfriend or friend(s); w2i.
+usually sitting with friend(s); w2i.
 
 if you have any issues with me: it's likely onesided ...
 
