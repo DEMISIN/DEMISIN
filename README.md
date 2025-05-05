@@ -4,7 +4,7 @@
   
 # <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **■■■■**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
 
-$${\color{red}"a" \space/\space cain \space/\space atem}$$
+$${\color{red}168 \space/\space 810 \space/\space 004}$$
 
 he/him & 19 yro
 
@@ -19,7 +19,7 @@ read my informational links. thanks.
 ### **things i like**
 marvel (rivals), roblox (phighting), genshin, fire emblem, yugioh, etc.
 
-$${\color{yellow}i \space do \space not \space condone \space the \space actions \space of \space the \space parent \space companies \space behind \space those \space medias.}$$
+$${\color{yellow}i \space hate \space limbus \space company.}$$
 
 <!--
 **DEMISIN/DEMISIN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
