@@ -2,7 +2,7 @@
 
 
   
-# <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **THE CAIN GUY**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
+# <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **■■■■**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
 
 $${\color{red}"a" \space/\space cain \space/\space atem}$$
 
