@@ -6,18 +6,18 @@
 
 $${\color{red}"a" \space/\space cain \space/\space atem}$$
 
-he/him & 18 yro
+he/him & 19 yro
 
 usually sitting with friend(s); w2i.
 
 if you have any issues with me: it's likely onesided ...
 
-read my informational links :3
+read my informational links. thanks.
 
 <hr>
 
 ### **things i like**
-projectmoon, yugioh, genshin, league of legends, etc.
+marvel (rivals), roblox (phighting), genshin, fire emblem, yugioh, etc.
 
 $${\color{yellow}i \space do \space not \space condone \space the \space actions \space of \space the \space parent \space companies \space behind \space those \space medias.}$$
 
