@@ -6,18 +6,16 @@
 
 $${\color{red}168 \space/\space 810 \space/\space 004}$$
 
-he/him & 19 yro
+he/him & 19
 
-usually sitting with friend(s); w2i.
+w2i. im usually off-tab. 
 
 if you have any issues with me: it's likely onesided ...
-
-read my informational links. thanks.
 
 <hr>
 
 ### **things i like**
-marvel (rivals), roblox (phighting), genshin, fire emblem, yugioh, etc.
+marvel (rivals), roblox (phighting), genshin impact, fire emblem, yugioh, etc.
 
 $${\color{yellow}i \space hate \space limbus \space company.}$$
 
