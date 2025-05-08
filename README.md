@@ -4,7 +4,7 @@
   
 # <div align="center"> <div class="gr-box"> <img width="30" src="https://static.wikia.nocookie.net/limbuscompany/images/0/01/A_Sign_3_Gift.png/revision/latest?cb=20230310020445"> **■■■■**  <img width="20" src="https://static.wikia.nocookie.net/limbuscompany/images/4/4e/Sinclair_Icon.png/revision/latest?cb=20230310044135"></span></div>
 
-$${\color{red}168 \space/\space 810 \space/\space 004}$$
+$${\color{red}[168](https://genshin.hoyoverse.com/en/character/sumeru?char=8) \space/\space [810](https://limbuscompany.wiki.gg/wiki/Don_Quixote) \space/\space [004](https://genshin.hoyoverse.com/en/character/mondstadt?char=15)}$$
 
 he/him & 19
 
