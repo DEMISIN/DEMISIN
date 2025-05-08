@@ -8,7 +8,8 @@ $${\color{red}168 \space/\space 810 \space/\space 004}$$
 
 he/him & 19
 
-w2i. im usually off-tab. 
+w2i / global chat is turned off.  
+i like hiding in trees/behind people!
 
 if you have any issues with me: it's likely onesided ...
 
