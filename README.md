@@ -15,7 +15,10 @@ if you have any issues with me: it's likely onesided ...
 <hr>
 
 ### **things i like**
-marvel (rivals), roblox (phighting), genshin impact, fire emblem, yugioh, etc.
+marvel (rivals), roblox (phighting), genshin impact
+fire emblem, yugioh, metaphor,  etc.
+
+[i game lalala](https://backloggery.com/ywnky)
 
 $${\color{yellow}i \space hate \space limbus \space company.}$$
 
