@@ -9,9 +9,10 @@ $${\color{red}168 \space/\space 810 \space/\space 004}$$
 he/him & 19
 
 w2i / global chat is turned off.  
-i like hiding in trees/behind people!
+i like hiding in trees ~ yahoo ~
 
 if you have any issues with me: it's likely onesided ...
+cover me / my friends = i hide you lalala ~
 
 <hr>
 
@@ -19,7 +20,7 @@ if you have any issues with me: it's likely onesided ...
 marvel (rivals), roblox (phighting), genshin impact  
 fire emblem, yugioh, league of legends, metaphor +
 
-[i game lalala](https://backloggery.com/ywnky)
+[i game yay !](https://backloggery.com/ywnky)
 
 $${\color{yellow}i \space hate \space limbus \space company.}$$
 
