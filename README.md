@@ -15,8 +15,8 @@ if you have any issues with me: it's likely onesided ...
 <hr>
 
 ### **things i like**
-marvel (rivals), roblox (phighting), genshin impact
-fire emblem, yugioh, metaphor,  etc.
+marvel (rivals), roblox (phighting), genshin impact  
+fire emblem, yugioh, league of legends, metaphor +
 
 [i game lalala](https://backloggery.com/ywnky)
 
