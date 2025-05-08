@@ -22,7 +22,7 @@ fire emblem, yugioh, league of legends, metaphor +
 
 [i game yay !](https://backloggery.com/ywnky)
 
-$${\color{yellow}i \space hate \space limbus \space company.}$$
+$${\color{yellow}i \space hate \space limbus \space company. \space GRRRR.}$$
 
 <!--
 **DEMISIN/DEMISIN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
